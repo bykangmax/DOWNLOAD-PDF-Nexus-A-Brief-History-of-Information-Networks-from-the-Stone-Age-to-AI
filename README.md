@@ -6,7 +6,7 @@ File format : ePub, PDF, Kindle, AudioBook
 Rating : 4.19
 ISBN : 204927599-nexus
 
-DOWNLOAD FILE HERE: https://ca.ebookarea.xyz/?book=204927599-nexus
+**DOWNLOAD FILE HERE: https://ca.ebookarea.xyz/?book=204927599-nexus**
 
 Book Descriptions:
 From the #1 New York Times bestselling author of Sapiens comes the groundbreaking story of how information networks have made, and unmade, our world.
